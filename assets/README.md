@@ -1,0 +1,1 @@
+ Şəkillər qovluğu
